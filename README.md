@@ -1,0 +1,1 @@
+Só para fins de conhecimento por enquanto.
